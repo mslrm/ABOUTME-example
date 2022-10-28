@@ -30,7 +30,7 @@
 - 🍰cake [recipe](https://www.allrecipes.com/recipe/17481/simple-white-cake/)
 - 🥘soup[recipe](https://themodernproper.com/30-best-soup-recipes)
 
-*** favorite places i traveled to***
+***favorite places i traveled to***
 - spain
 - turkey
 - lebanon
